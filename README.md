@@ -1,1 +1,1 @@
-# curso
+# https://meditacaoemocional.github.io/curso/
